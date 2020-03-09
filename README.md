@@ -1,1 +1,0 @@
-https://VladErmolenko/rsschool-cv/cv
