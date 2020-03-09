@@ -1,1 +1,1 @@
-https://VladErmolenko/rsschool-cv/cv
+https://VladErmolenko.io/rsschool-cv/cv
